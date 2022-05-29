@@ -1,0 +1,1 @@
+# 2022-2-Analisis-Multidimensional-de-Datos-Ale
